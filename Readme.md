@@ -169,6 +169,6 @@ Special thanks to [AnonymousX1025](https://github.com/AnonymousX1025) for the or
   
   ### Made with ❤️ by Hasindu Nagolla
   
-  **© 2025 ˹ʜᴀꜱɪɪ ᴍᴜꜱɪᴄ˼. All rights reserved.**
+  **© 2026 ˹ʜᴀꜱɪɪ ᴍᴜꜱɪᴄ˼. All rights reserved.**
   
 </div>
